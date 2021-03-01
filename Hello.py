@@ -7,3 +7,4 @@ MY hobby is drawing pictures
 MY birthday is Febulary 14th
 
 I like to play game
+geme is named FinalFantasyXIV
