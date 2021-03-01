@@ -8,4 +8,4 @@ MY birthday is Febulary 14th
 
 I like to play game
 geme is named FinalFantasyXIV
-I playing this game everyday
+I love this game
